@@ -1,1 +1,1 @@
-[ти лох](https://youtu.be/mV2GxCAvnbw)
+https://youtu.be/mV2GxCAvnbw
